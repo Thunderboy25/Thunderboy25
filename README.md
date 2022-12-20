@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Thunderboy25
 - 👀 I’m interested in programming and soccer
 - 🌱 I’m currently studying CS
-- 📫 How to reach me leningerardo@hotmail.com
+- 📫 How to reach me leninthexd@gmail.com
